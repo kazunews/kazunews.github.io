@@ -1,0 +1,1 @@
+# kazunews.github.io
